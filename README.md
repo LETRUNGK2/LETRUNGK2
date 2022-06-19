@@ -7,7 +7,7 @@ Hi, I’m Trung
 
 - I’m currently learning Post-Graduate Degree in Business Insight and Data Analytics at Humber College, Canada 
 
-
+- Linkedin: https://www.linkedin.com/in/trung-le2205/
 - 📫  letrung.k2@gmail.com 
 
 
