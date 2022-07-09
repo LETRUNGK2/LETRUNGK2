@@ -5,7 +5,8 @@ Hi, I’m Trung
  
 - I’m currently learning Post-Graduate Degree in Business Insight and Data Analytics at Humber College, Canada 
 
-- Linkedin: https://www.linkedin.com/in/trung-le2205/
+- Linkedin: www.linkedin.com/in/aaronle0592
+
 - 📫  letrung.k2@gmail.com 
 
 Marketing Domain: Facebook and Google Ads, Campaign Strategy, CRM, Funnel Analysis. 
